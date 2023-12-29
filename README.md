@@ -3,7 +3,7 @@
 
 
 ## 🚀 About Me
-I'm an IT professional working in Ambuja Cement Foundation. 
+IT Professional with a passion for Technology and Innovation.
 
 
 # Hi, I'm Supriya! 👋
